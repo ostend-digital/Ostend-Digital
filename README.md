@@ -4,15 +4,15 @@ Ostend Digital ist eine führende Agentur im Bereich Digital- und Performance-Ma
 ## 🌟 Unsere Highlights
 
 ## 🚀 Was wir bieten
-SEO & Conversion-Optimierung: Durch gezielte Strategien verbessern wir die Rankings und Conversions eurer Websites.
+**SEO & Conversion-Optimierung:** Durch gezielte Strategien verbessern wir die Rankings und Conversions eurer Websites.
 
-Social Media Advertising: Performance-getriebene Social Ads auf Plattformen wie Meta und Instagram, um Umsätze und Leads zu steigern.
+**Social Media Advertising:** Performance-getriebene Social Ads auf Plattformen wie Meta und Instagram, um Umsätze und Leads zu steigern.
 
-Google Ads: Zertifizierte Google-Ads-Kampagnen, die von Suchkampagnen bis hin zu Display- und Shopping-Anzeigen reichen.
+**Google Ads:** Zertifizierte Google-Ads-Kampagnen, die von Suchkampagnen bis hin zu Display- und Shopping-Anzeigen reichen.
 
-Webdesign & CRO: Optimierung der User Experience und Conversion-Rate durch modernes, suchmaschinenoptimiertes Webdesign.
+**Webdesign & CRO:** Optimierung der User Experience und Conversion-Rate durch modernes, suchmaschinenoptimiertes Webdesign.
 
-Content Marketing: Durchdachte Content-Strategien zur Steigerung der Sichtbarkeit und der Lead-Generierung.
+**Content Marketing:** Durchdachte Content-Strategien zur Steigerung der Sichtbarkeit und der Lead-Generierung.
 
 ## 🔗 Unsere Mission
 Wir helfen Unternehmen, sich in der digitalen Welt zu behaupten und das volle Potenzial ihrer Online-Präsenz zu entfalten – mit maßgeschneiderten Marketinglösungen, die Ergebnisse liefern.
