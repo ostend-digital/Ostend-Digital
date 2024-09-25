@@ -1,8 +1,6 @@
 ## Ostend Digital – Digital- und Performance-Marketing Agentur
 Ostend Digital ist eine führende Agentur im Bereich Digital- und Performance-Marketing. Wir helfen Unternehmen, ihre Online-Präsenz zu optimieren, Zielgruppen zu erreichen und Umsätze zu steigern – durch maßgeschneiderte digitale Strategien und effektive Performance-Kampagnen.
 
-## 🌟 Unsere Highlights
-
 ## 🚀 Was wir bieten
 **SEO & Conversion-Optimierung:** Durch gezielte Strategien verbessern wir die Rankings und Conversions eurer Websites.
 
